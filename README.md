@@ -18,7 +18,7 @@ Thomas Anna Fits Boot Camp is a results-driven fitness program designed to help 
 - Personal Coaching & Guidance  
 - Motivation & Discipline Training  
 
-## Training Schedule
+## Training Schedule (online) 
 - **Days:** Monday – Saturday  
 - **Time:** Morning & Evening Sessions  
 - **Duration:** 4–8 Weeks  
@@ -28,8 +28,8 @@ Thomas Anna Fits Boot Camp is a results-driven fitness program designed to help 
 - Online Training Available  
 
 ## Contact
-**WhatsApp / Phone:**  +1 416 555 7392
-**Email:** anna.thomast1@gmail.com  
+**WhatsApp / Phone:**  +1 637 555 5678
+**Email:** annathomasfitness666@gmail.com
 
 ## Join Us
 Join Thomas Anna Fits Boot Camp today and start your fitness transformation journey!
