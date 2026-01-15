@@ -30,6 +30,8 @@ Thomas Anna Fits Boot Camp is a results-driven fitness program designed to help 
 ## Contact
 **WhatsApp / Phone:**  +1 637 555 5678
 **Email:** annathomasfitness666@gmail.com
+**instagram**
+Anastasiaxthomas
 
 ## Join Us
 Join Thomas Anna Fits Boot Camp today and start your fitness transformation journey!
